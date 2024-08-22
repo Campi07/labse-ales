@@ -1,1 +1,1 @@
-# labse-ales
+# labseñales
